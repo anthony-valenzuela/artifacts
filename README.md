@@ -1,1 +1,1 @@
-# artifacts
+# Anthony Valenzuela is an alumnus at CSUSB with his Bachelor’s Degree in Business Administration concentrating in Entrepreneurship. He is an experienced Project Manager with demonstrated experience in increased efficiency, productivity, and revenue while effectively managing projects of all sizes. With a keen eye for detail and a disciplined approach to execution, excels at driving projects through to completion based on milestones and excellent communication.
